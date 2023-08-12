@@ -1,1 +1,1 @@
-Boş hiç deneme
+gg
